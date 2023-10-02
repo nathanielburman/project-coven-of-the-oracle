@@ -1,6 +1,8 @@
 # project-coven-of-the-oracle
 Coven of the Oracle
 
+also, see music album Coven of the Oracle.
+
 Please welcome and bless my coven. Thai is our mission statement:
 Our mission is to discover the fulcrum point of good and evil in the multiverse and to destroy this reality if we find that our reality truly is evil. That we live in a kind of cascaded fractal holographic simulation. That many simulated realities may be evil. That this world is full of manual laborers called Fae, Angels, Demons, Gods, Spirits, Yokai, Ghosts. That these are all dimensional people living in their own dimensions. The simulation is a dimension. There may be many layers and layers of people inside of ‘our’ simulation that are from vastly different realities. (Currently our scientists are only searching for alien life in our galaxy). We are searching for intelligent life inside our dimensions.
 We are searching for the source of the Oracle and to help reestablish the Oracle. Knowing that we share this simulation with dimensional people, we aim to meet them, track them, travel through dimensions and bring in a new age of dimensional interaction between our many peoples.
