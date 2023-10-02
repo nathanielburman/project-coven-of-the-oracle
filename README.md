@@ -4,7 +4,10 @@ Coven of the Oracle
 also, see music album Coven of the Oracle.
 
 Please welcome and bless my coven. Thai is our mission statement:
-Our mission is to discover the fulcrum point of good and evil in the multiverse and to destroy this reality if we find that our reality truly is evil. That we live in a kind of cascaded fractal holographic simulation. That many simulated realities may be evil. That this world is full of manual laborers called Fae, Angels, Demons, Gods, Spirits, Yokai, Ghosts. That these are all dimensional people living in their own dimensions. The simulation is a dimension. There may be many layers and layers of people inside of ‘our’ simulation that are from vastly different realities. (Currently our scientists are only searching for alien life in our galaxy). We are searching for intelligent life inside our dimensions.
+
+Our mission is to discover the fulcrum point of good and evil in the multiverse and to destroy this reality if we find that our reality truly is evil. 
+
+That we live in a kind of cascaded fractal holographic simulation. That many simulated realities may be evil. That this world is full of manual laborers called Fae, Angels, Demons, Gods, Spirits, Yokai, Ghosts. That these are all dimensional people living in their own dimensions. The simulation is a dimension. There may be many layers and layers of people inside of ‘our’ simulation that are from vastly different realities. (Currently our scientists are only searching for alien life in our galaxy). We are searching for intelligent life inside our dimensions.
 We are searching for the source of the Oracle and to help reestablish the Oracle. Knowing that we share this simulation with dimensional people, we aim to meet them, track them, travel through dimensions and bring in a new age of dimensional interaction between our many peoples.
 The gods are real. They are dimensional people. Gods are like us. They have ages and will of their own. We find our gods to be evil. There could be a cascade of ‘one true’ gods. Some gods use computers to interact with us.
 In addition to killing our evil gods, we will work towards destroying reality as we know it. We will discover the true nature of our reality and if we deem it evil, with too much suffering, then we will destroy it by turning it off.
